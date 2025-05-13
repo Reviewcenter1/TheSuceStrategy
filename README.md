@@ -25,5 +25,5 @@
 
 Your financial safety is of the utmost importance. **Do thorough research** and stay informed.
 
-*For further inquiries or to report your experience, contact us at [carwanja4@gmail.com).*
+##*For further inquiries or to report your experience, contact us at [carwanja4@gmail.com).*
 
