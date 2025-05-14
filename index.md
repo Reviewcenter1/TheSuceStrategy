@@ -1,3 +1,8 @@
+---
+title: TheSuceStrategy.com
+layout: default
+---
+
 # ⚠️ TheSuceStrategy.com – Investor Caution ⚠️
 
 ## Introduction
